@@ -42,4 +42,4 @@ Forumlar her zaman barışın sağlandığı yerler olamayabiliyor. Özür dilem
 
 ## Bonus: Dilinizi iyi kullanın
 
-Kelimeleri doğru yazmaya dikkat edin. Ağız özelliklerinden kaçının. "Yapıyom, ediyom" gibi söylemlerden kaçının. Laubalilikten kaçının. İnsanlar sizi ciddipye alıp cevap vermekten kaçınabilirler.
+Kelimeleri doğru yazmaya dikkat edin. Ağız özelliklerinden kaçının. "Yapıyom, ediyom" gibi söylemlerden kaçının. Laubalilikten kaçının. İnsanlar sizi ciddiye alıp cevap vermekten kaçınabilirler.
